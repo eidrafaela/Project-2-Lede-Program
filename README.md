@@ -1,4 +1,4 @@
-[RAFAELAREADME.MD](https://github.com/user-attachments/files/29941669/RAFAELAREADME.MD)
+
 # Brazil paid 82% more per kilogram for liver-based products in 2025
 
 ## What I aimed to accomplish
